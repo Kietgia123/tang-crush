@@ -1,5 +1,5 @@
-# Tặng Crush
-## _Một điều nho nhỏ tỏ tình với crush_
+# hội những người kh học bài
+## _Một điều nho nhỏ với những người không học
 
 Liên lạc: 
 [![Facebook](https://i.imgur.com/GRqy96ts.jpg)](https://www.facebook.com/nam.nodemy)
